@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning japanese
 - 💞️ I’m looking to collaborate on..
 - 📫 How to reach me
-- 😄 Pronouns: he never / not him
+- 😄 Pronouns: his hignhess
 - ⚡ Fun fact: haga
 
 <!---
