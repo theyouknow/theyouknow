@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @oak
-- 👀 I’m interested in you
+- 👀 I’m interested in..
 - 🌱 I’m currently learning japanese
-- 💞️ I’m looking to collaborate on yo ass
-- 📫 How to reach me ass
+- 💞️ I’m looking to collaborate on..
+- 📫 How to reach me
 - 😄 Pronouns: he never / not him
-- ⚡ Fun fact: yo mama
+- ⚡ Fun fact: haga
 
 <!---
 theyouknow/theyouknow is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
