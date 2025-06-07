@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @oak
+- 👋 Hi, I’m @oaksy
 - 👀 I’m interested in..
 - 🌱 I’m currently learning japanese
 - 💞️ I’m looking to collaborate on..
